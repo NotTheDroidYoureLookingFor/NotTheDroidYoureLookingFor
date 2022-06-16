@@ -1,0 +1,1 @@
+Hey there! I'm NotTheDroidYoureLookingFor, but you can call me Droid. I'm a small HTML and JavaScript Coder, but i am learning more languages of coding right now. I'm starting a side job creating sites for people. If you want to contact me, please email azrielsucksballs42@gmail.com (sorry for the profane email.) and i hope to see you all have a blessed day!
